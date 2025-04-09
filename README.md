@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on machine learning
 - 📫 How to reach me inlive in florida
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...Prashanth kotla Florida
 - ⚡ Fun fact: ...outdoor
 
 <!---
